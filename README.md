@@ -6,7 +6,7 @@ system
 
 i block freely
 
-heavily suspected bpd and diagnosed gad + mdd
+heavily suspected bpd and diagnosed gad
 
 always iw(e)c unless friend ok
 
